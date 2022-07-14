@@ -1,3 +1,2 @@
 # Today I Learned
-
-## 1. Whiy git and github?
+### [https://www.joyfuls.xyz/til/220714](https://www.joyfuls.xyz/til/220714)
