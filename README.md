@@ -15,3 +15,5 @@
 ## July 4th Week
 
 ### [07/18 (월)](https://www.joyfuls.xyz/til/220718)
+
+### [07/19 (화)](https://www.joyfuls.xyz/til/220719)
