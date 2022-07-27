@@ -31,3 +31,5 @@
 ### [07/25 (월)](https://www.joyfuls.xyz/til/220725)
 
 ### [07/26 (화)](https://www.joyfuls.xyz/til/220726)
+
+### [07/27 (수)](https://www.joyfuls.xyz/til/220727)
