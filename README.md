@@ -35,3 +35,9 @@
 ### [07/27 (수)](https://www.joyfuls.xyz/til/220727)
 
 ### [07/29 (금)](https://www.joyfuls.xyz/til/220729)
+
+<br>
+
+## August 1st Week
+
+### [08/01 (월)](https://www.joyfuls.xyz/til/220801)
