@@ -43,3 +43,9 @@
 ### [08/01 (월)](https://www.joyfuls.xyz/til/220801)
 
 ### [08/03 (수)](https://www.joyfuls.xyz/til/220803)
+
+<br>
+
+## August 2nd Week
+
+### [08/08 (월)](https://www.joyfuls.xyz/til/220808)
