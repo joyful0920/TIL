@@ -51,3 +51,5 @@
 ### [08/08 (월)](https://www.joyfuls.xyz/til/220808)
 
 ### [08/10 (수)](https://www.joyfuls.xyz/til/220810)
+
+### [08/17 (수)](https://www.joyfuls.xyz/til/220817)
