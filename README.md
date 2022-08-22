@@ -54,6 +54,12 @@
 
 <br>
 
-## August 3nd Week
+## August 3rd Week
 
 ### [08/17 (수)](https://www.joyfuls.xyz/til/220817)
+
+<br>
+
+## August 4th Week
+
+### [08/21 (월)](https://www.joyfuls.xyz/til/220821)
