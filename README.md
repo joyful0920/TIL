@@ -65,3 +65,9 @@
 ### [08/22 (월)](https://www.joyfuls.xyz/til/220822)
 
 ### [08/24 (수)](https://www.joyfuls.xyz/til/220824)
+
+<br>
+
+## September 1st Week
+
+### [08/30(화)](https://www.joyfuls.xyz/til/220830)
