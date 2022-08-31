@@ -71,3 +71,5 @@
 ## September 1st Week
 
 ### [08/30(화)](https://www.joyfuls.xyz/til/220830)
+
+### [08/31(수)](https://www.joyfuls.xyz/til/220831)
