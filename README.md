@@ -97,3 +97,9 @@
 ### [10/04(화)](https://www.joyful.icu/til/221004)
 
 ### [10/05(수)](https://www.joyful.icu/til/221005)
+
+<br>
+
+## October 2nd Week
+
+### [10/11(화)](https://www.joyful.icu/til/221011)
