@@ -119,3 +119,5 @@
 ## October 4th Week
 
 ### [10/24(월)](https://www.joyful.icu/til/221024)
+
+### [10/26(월)](https://www.joyful.icu/til/221026)
