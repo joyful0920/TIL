@@ -121,3 +121,9 @@
 ### [10/24(월)](https://www.joyful.icu/til/221024)
 
 ### [10/26(월)](https://www.joyful.icu/til/221026)
+
+<br>
+
+## November 1st Week
+
+### [10/31(월)](https://www.joyful.icu/til/221031)
