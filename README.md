@@ -6,8 +6,9 @@
 
 ## November 2nd Week
 
-### [11/07(월)](https://www.joyful.icu/til/221107)
+### [11/09(수)](https://www.joyful.icu/til/221109)
 
+### [11/07(월)](https://www.joyful.icu/til/221107)
 
 <br>
 
