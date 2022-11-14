@@ -4,6 +4,12 @@
 링크를 클릭하시면 TIL이 기록된 블로그 게시물로 이동됩니다.
 <br><br>
 
+## November 3rd Week
+
+### [11/14(월)](https://www.joyful.icu/til/221114)
+
+<br>
+
 ## November 2nd Week
 
 ### [11/09(수)](https://www.joyful.icu/til/221109)
